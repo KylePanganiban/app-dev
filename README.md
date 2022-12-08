@@ -8,3 +8,8 @@ My first repository
 4. Sword Art Online: Ordinal Scale Movie (2017)
 
 *This is a story about a gamer who was trap inside a VR Death Game, that if you die inside the game you would also die in real life.*
+**It was a pretty sad story, because i grown to like some of the characters that ended up dying**
+
+> If I've learned anything in the last two years, it’s this: to keep doing the very best we can until the end. -Asuna
+
+*This is the quote that i like from this anime series, it would be best to always give your best because we would only live once, why dont we give our strive to be the better version of ourselves in order not regret on not doing it at the last day of our life*
